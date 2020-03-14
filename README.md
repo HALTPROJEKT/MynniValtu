@@ -1,2 +1,2 @@
 # MynniValtu
-OnHan Se Joo
+Älä Ny helvetis lue tätä.
